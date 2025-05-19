@@ -3,7 +3,7 @@
 - I am not a pro at coding, so you can leave messaging me for help alone
 - Hope you're having a good day :)... I am too.
 ## Lets talk 🗣️
-- Discord: cireachy
+- Discord: zireachy
 ## Games
 - GOI
 - Roblox
